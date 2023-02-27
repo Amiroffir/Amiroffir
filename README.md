@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **amirosoffir@gmail.com**
 
-- :soccer: **Sports** are my other main passion!
+- :soccer: **Sports** is my other passion!
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
